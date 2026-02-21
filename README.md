@@ -1,1 +1,1 @@
-Nascar Scanner - 2024 Season
+Nascar Driver Channels for Scanner - 2026 Season
